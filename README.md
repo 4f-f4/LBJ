@@ -1,2 +1,0 @@
-# LBJ
-sada
